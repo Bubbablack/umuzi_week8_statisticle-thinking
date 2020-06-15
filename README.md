@@ -1,1 +1,1 @@
-# umuzi_week8_statisticle-thinking
+# umuzi_week8_statisticale-thinking
